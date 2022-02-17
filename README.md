@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @cereriss
-- 👀 I’m interested in piracy and coding
+- 👀 I’m interested in coding and design
 - 🌱 I’m currently learning coding at school
 - 📫 How to reach me: @cereriss on telegram 
 
